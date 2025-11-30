@@ -1,1 +1,0 @@
-# nguyen-duc-kien-a2-toan-2024-2027-hsgs
